@@ -1,0 +1,2 @@
+# mycop
+drunking stuff
